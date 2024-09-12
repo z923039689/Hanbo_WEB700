@@ -1,1 +1,1 @@
-Web700 assignment and workds
+Web700 assignment and projects
